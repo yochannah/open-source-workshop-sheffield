@@ -5,4 +5,3 @@ TO DO LIST
 - Finish grant proposal
 - Travel home.
 - Feed the cat.
-- Eat some icecream. 
