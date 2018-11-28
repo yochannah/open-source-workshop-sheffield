@@ -3,5 +3,5 @@
 TO DO LIST
 
 - Finish grant proposal
-- Answer PI's emails
 - Travel home.
+- Feed the cat.
